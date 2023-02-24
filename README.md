@@ -1,1 +1,1 @@
-My first readme updated
+My first friend is franko alx
